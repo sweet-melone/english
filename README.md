@@ -7,24 +7,24 @@
 
 
 
-**Survival English for Travel and Holidays**<br/>
+**[Survival English for Travel and Holidays](https://github.com/sweet-melone/english/wiki/Survival-English-for-Travel-and-Holidays)**<br/>
 [Udemy 自学课]  旅行中的英语会话<br/>
-https://github.com/sweet-melone/english/wiki/Survival-English-for-Travel-and-Holidays
 
 
-**Speak English With Confidence: English Speaking Course**<br/>
+
+**[Speak English With Confidence: English Speaking Course](https://github.com/sweet-melone/english/wiki/Speak-English-With-Confidence)**<br/>
 [Udemy 自学课]  如何自信开口说英语<br/>
-https://github.com/sweet-melone/english/wiki/Speak-English-With-Confidence
 
 
-**Complete English Course: Learn English Language | Beginners** <br/>
+
+**[Complete English Course: Learn English Language | Beginners](https://github.com/sweet-melone/english/wiki/Learn-English-Language--Beginners)** <br/>
 [Udemy 自学课]  私教老外零基础学英语 <br/>
-https://github.com/sweet-melone/english/wiki/Learn-English-Language--Beginners
 
 
-**Building Your English Brain**	 <br/>
+
+**[Building Your English Brain](https://github.com/sweet-melone/english/wiki/Building-Your-English-Brain)**	 <br/>
 [Udemy 自学课]  用英语思维学英语， 努力超越印度三哥 <br/>
-https://github.com/sweet-melone/english/wiki/Building-Your-English-Brain
+
 
 
 **English Fluency | How to Sound Like a Native English Speaker** <br/>
