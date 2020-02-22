@@ -27,13 +27,13 @@
 
 
 
-**English Fluency | How to Sound Like a Native English Speaker** <br/>
+**[English Fluency | How to Sound Like a Native English Speaker](https://github.com/sweet-melone/english/wiki/How-to-Sound-Like-a-Native-English-Speaker)** <br/>
 [Udemy 自学课]  如何听起来像英语母语<br/>
-https://github.com/sweet-melone/english/wiki/How-to-Sound-Like-a-Native-English-Speaker
 
-**English Speaking Patterns Mastery: Upgrade your English** <br/>
+
+**[English Speaking Patterns Mastery: Upgrade your English](https://github.com/sweet-melone/english/wiki/English-Speaking-Patterns-Mastery)** <br/>
 [Udemy 自学课]  升级英语口语的完美阐释<br/>
-https://github.com/sweet-melone/english/wiki/English-Speaking-Patterns-Mastery
+
 
 -----------------------------------------------
 
