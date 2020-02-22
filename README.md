@@ -37,4 +37,5 @@ https://github.com/sweet-melone/english/wiki/English-Speaking-Patterns-Mastery
 
 -----------------------------------------------
 
-自学我们是认真的 ~~  wangdudu15@gmail.com
+自学我们是认真的 ~~  <br/>
+wangdudu15@gmail.com
